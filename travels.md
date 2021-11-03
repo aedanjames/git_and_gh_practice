@@ -1,0 +1,2 @@
+I haven't really had a chance to travel much yet, but I suppose moving here to Colorado from California counts.
+My partner and I took a trip to Truth Or Consequences, New Mexico a couple of years ago to visit her grandparents. That was definitely my favorite travel experience to date. We soaked in the hot springs and played cards with Grandmother and Papa while Uncle Trigg (a super fat sweet old Lab) took naps.
